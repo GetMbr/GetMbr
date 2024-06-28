@@ -14,5 +14,5 @@
 - TikTok:
    - @getmbr_niko_oneshot
    - @isolynxx.jinxuu
-- ## [Website](https://isolynxx.carrd.co)
+- ## [Website](https://isolynx.carrd.co)
   
