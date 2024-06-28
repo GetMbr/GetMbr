@@ -6,13 +6,13 @@
 
 ## Accounts
 - Discord: isolynxx
-- Reddit: [u/GetMbr](reddit.com/u/GetMbr)
-- YT: [@isolynx.getmbr](youtube.com/@isolynx.getmbr)
+- Reddit: [u/GetMbr](https://reddit.com/u/GetMbr)
+- YT: [@isolynx.getmbr](https://youtube.com/@isolynx.getmbr)
 - X (Twitter):
-   - [@GetMbr_Niko](x.com/@GetMbr_Niko)
-   - [@GetMbr](x.com/@GetMbr)
+   - [@GetMbr_Niko](https://x.com/@GetMbr_Niko)
+   - [@GetMbr](https://x.com/@GetMbr)
 - TikTok:
    - @getmbr_niko_oneshot
    - @isolynxx.jinxuu
-- ## [Website](isolynxx.carrd.co)
+- ## [Website](https://isolynxx.carrd.co)
   
